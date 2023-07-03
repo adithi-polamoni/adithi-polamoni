@@ -11,4 +11,4 @@
 - 💬 Ask me about anything
 - 📫 How to reach me: adithipolamoni803@gmail.com
 - 😄 Pronouns: She/her
-- ⚡ Fun fact: I have tiny palms and gigantic fingers
+
